@@ -1,4 +1,4 @@
 # GroupPink
 
 zd2C25
-zd2C21
+根岸正治
